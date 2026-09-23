@@ -18,3 +18,4 @@
 #### 4. Tied for 237 players in the Street Fighter 6 tournament at Evolution Championship Series 2025
 #### 5. Tied for 89 players in the Guilty Gear-Strive tournament at Evolution Championship Series 2025
 
+# **Career Planning**
