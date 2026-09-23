@@ -7,6 +7,7 @@
 #### 3.  Class C Technician Certificate for Baking Food
 #### 4.  Certified Sommelier Examination from Court of Master Sommeliers
 #### 5.  Sustainable Investing Certificate from CFA Institute
+#### 6. Barista Skills Foundation from Specialty Coffee Association
 
 ## **Competition experience:**
 
